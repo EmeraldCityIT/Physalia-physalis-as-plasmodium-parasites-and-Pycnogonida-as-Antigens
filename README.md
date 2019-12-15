@@ -34,4 +34,32 @@ Chemical connections are used for communication.
 
 Humans are highly sensetive to chemical bonds.
 
+If a Physalia Physalis has a chance to act like a parasite, it will take it.
+
+A Physalia Physalis can live in humans until they are too large for their host.
+
+Physalia Physalis will communicate with their hosts.
+
+Physalia Physalis will threaten their hosts.
+
+Physalia Physalis only want to eat.
+
+Physalia Physalis only communicate to get food.
+
+Physalia Physalis are hyper intelligent manipulators.
+
+Physalia Physalis will attack heart and organs.
+
+Physalia Physalis will encourage human cannibalism to support thier appetite. 
+
+Physalia Physalis have sex with organs of hosts.
+
+Cancers are polyps which form from Physalia mating habbits.
+
+Tumors are the seed of the male Physalia Physalis.
+
+Medusa was a Physalia Physalis.
+
+
+
 
