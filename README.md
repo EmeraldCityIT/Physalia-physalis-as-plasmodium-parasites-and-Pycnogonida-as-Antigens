@@ -58,8 +58,7 @@ Cancers are polyps which form from Physalia mating habbits.
 
 Tumors are the seed of the male Physalia Physalis.
 
-Medusa was a Physalia Physalis.
-
+The organ trafficking and transplant industry is fueled by hosts of the Physalia Physalis.
 
 
 
