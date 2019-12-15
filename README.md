@@ -24,7 +24,7 @@ Physalia Physalis eat the most active, or most hyper individuals.
 
 Physalia Physalis build chemical connections "staples" with organisms they infect.
 
-Chemical connections remain even if physical bonds occure.
+Chemical connections remain even if physical bonds are broken.
 
 Male and female Physalia Physalis remain chemically bonded after split.
 
