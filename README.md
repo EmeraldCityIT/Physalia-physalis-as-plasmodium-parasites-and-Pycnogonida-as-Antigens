@@ -7,5 +7,7 @@ Theories of male and female seperation include
 
 2. Males seperate from females after reaching sexual maturity and fertilizing the female.
 
+3. During Mating Males fertilize the female as well as any larvae she already carries.
+
 
 An extinction level event arrises in the fact that as larvae Nematocysts, the Physalia Physalis is grown as a weapon used to inject inself into a target prey. Fully Grown Physalia Physalis resemple large, tailed sea spiders and are known to seek out and parasetically infect mammals on land including humans. Through evolution of weaponized infantcy, the fully grown male Physalia Physalis is able to navigate, track and gain entry into a human host as part of it's natural cycle. Openings such as mouth, throat, anal cavity and Vagina are used to gain entry into a targeted host.
