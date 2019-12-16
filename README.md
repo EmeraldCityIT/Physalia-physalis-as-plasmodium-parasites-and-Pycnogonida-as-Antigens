@@ -1,64 +1,56 @@
 # Extinction-Level-Event-by-Physalia-Physalis
-The female Physalia Physalis (portuguese man o war) carries reproductive organs in her tenticles which are used to mate with the elusive male counterpart. The male Physalia Physalis resemples a pycnogonid species and also carries reproductive organs in his appendages or legs. Upon fertilication by mating, Male and female counterparts are formed together as Nematocysts within Cnidocytes in the female's tentacles. During larval stages, while still within the mother's Nematocysts, the larvae is weaponized and used to attack and parasetically infect prey. When the Nematocysts outgrow the Cnidocytes of the mother, they are released into the ocean to begin a new lifecycle. 
+The female Physalia Physalis (Portuguese man o war) carries reproductive organs in her tentacles which are used to mate with the elusive male counterpart. The male Physalia Physalis resembles a pycnogonid species and also carries reproductive organs in his appendages or legs. Upon fertilisation by mating, Male and female counterparts are formed together as Nematocysts within Cnidocytes in the female's tentacles. During larval stages, while still within the mother's Nematocysts, the larvae is weaponized and used to attack and parasitically infect prey. When the Nematocysts outgrow the Cnidocytes of the mother, they are released into the ocean to begin a new lifecycle.
 
-Theories of male and female seperation include:
+Males rip the shell and eyes off of females to inhibid movement, fully expose her gonopores and to enforce dominance. The result of a female Physalia Physalis's shell being removed is the portuguese man o war "Jellyfish" creature. The female's blatter expands without a protective covering and the creature is forced to the top of the ocean. The female physalia without shell removed resembles a common Pycnogonid Sea Spider.
 
-1. Males are used during the sting process, females are released into ocean.
-
-2. Males seperate from females after reaching sexual maturity and fertilizing the female.
-
-3. During Mating Males fertilize the female as well as any larvae she already carries.
-
-
-An extinction level event arrises in the fact that as larvae Nematocysts, the Physalia Physalis is grown as a weapon used to inject inself into a target prey. Fully Grown Physalia Physalis resemple large, tailed sea spiders and are known to seek out and parasetically infect mammals on land including humans. Through evolution of weaponized infantcy, the fully grown male Physalia Physalis is able to navigate, track and gain entry into a human host as part of it's natural cycle. Openings such as mouth, throat, anal cavity and Vagina are used to gain entry into a targeted host.
+An extinction-level event arrises in the fact that as larvae Nematocysts, the Physalia Physalis is grown as a weapon used to inject itself into a target prey. Fully Grown Physalia Physalis resemble large, tailed sea spiders and are known to seek out and parasitically infect mammals on land including humans. Through the evolution of weaponized infancy, the fully grown male Physalia Physalis is able to navigate, track and gain entry into a human host as part of it's a natural cycle. Openings such as mouth, throat, anal cavity and Vagina are used to gain entry into a targeted host.
 
 Verified Characteristics:
 
-The Physalia Physalis are hyper intelligent. 
+1. The Physalia Physalis are hyper-intelligent.
 
-The Physalia Physalis's only motive is to maintain dominance in the food chain.
+2. Physalia Physalis's only motive is to maintain dominance in the food chain.
 
-The Physalia Physalis eat Human, Cat, Whale, Tauran, "you if you let them" -Starfleet Command
+3. The Physalia Physalis eat Human, Cat, Whale, Tauran, "you if you let them" -Starfleet Command
 
-Physalia Physalis eat the most active, or most hyper individuals.
+4. Physalia Physalis eat the most active, or most hyper individuals.
 
-Physalia Physalis build chemical connections "staples" with organisms they infect.
+5. Physalia Physalis build chemical connections "staples" with organisms they infect.
 
-Chemical connections remain even if physical bonds are broken.
+6. Chemical connections remain even if physical bonds are broken.
 
-Male and female Physalia Physalis remain chemically bonded after split.
+7. Male and female Physalia Physalis remain chemically bonded after a split.
 
-Mother and infant Physalia Physalis remain chemically connected after physical seperation.
+8. Mother and infant Physalia Physalis remain chemically connected after physical separation.
 
-Chemical connections are used for communication.
+9. Chemical connections are used for communication.
 
-Humans are highly sensetive to chemical bonds.
+10. Humans are highly sensitive to chemical bonds.
 
-If a Physalia Physalis has a chance to act like a parasite, it will take it.
+11. If a Physalia Physalis has a chance to act like a parasite, it will take it.
 
-A Physalia Physalis can live in humans until they are too large for their host.
+12. Physalia Physalis can live in humans until they are too large for their host.
 
-Physalia Physalis will communicate with their hosts.
+13. Physalia Physalis will communicate with their hosts.
 
-Physalia Physalis will threaten their hosts.
+14. Physalia Physalis will threaten their hosts.
 
-Physalia Physalis only want to eat.
+15. Physalia Physalis only wants to eat.
 
-Physalia Physalis only communicate to get food.
+16. Physalia Physalis only communicates to get food.
 
-Physalia Physalis are hyper intelligent manipulators.
+17. Physalia Physalis are hyper-intelligent manipulators.
 
-Physalia Physalis will attack heart and organs.
+18. Physalia Physalis will attack the heart and organs.
 
-Physalia Physalis will encourage human cannibalism to support thier appetite. 
+19. Physalia Physalis will encourage human cannibalism to support their appetite.
 
-Physalia Physalis have sex with organs of hosts.
+20. Physalia Physalis have sex with organs of hosts.
 
-Cancers are polyps which form from Physalia mating habbits.
+21. Cancers are polyps that form from Physalia mating habits.
 
-Tumors are the seed of the male Physalia Physalis.
+22. Tumors are the seed of the male Physalia Physalis.
 
-The organ trafficking and transplant industry is fueled by hosts of the Physalia Physalis.
+23. The organ trafficking and transplant industry is fueled by hosts of the Physalia Physalis.
 
-
-
+24. Male Physalia Physalis rip the shells and eyes from their female counterparts to inhibit hovement and enforce control, they treat humans worse than their own kind.
