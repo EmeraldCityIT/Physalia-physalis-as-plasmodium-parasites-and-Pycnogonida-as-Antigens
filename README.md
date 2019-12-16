@@ -7,48 +7,48 @@ An extinction-level event arrises in the fact that as larvae Nematocysts, the Ph
 
 Verified Characteristics:
 
-The Physalia Physalis are hyper-intelligent.
+1. The Physalia Physalis are hyper-intelligent.
 
-Physalia Physalis's only motive is to maintain dominance in the food chain.
+2. Physalia Physalis's only motive is to maintain dominance in the food chain.
 
-The Physalia Physalis eat Human, Cat, Whale, Tauran, "you if you let them" -Starfleet Command
+3. The Physalia Physalis eat Human, Cat, Whale, Tauran, "you if you let them" -Starfleet Command
 
-Physalia Physalis eat the most active, or most hyper individuals.
+4. Physalia Physalis eat the most active, or most hyper individuals.
 
-Physalia Physalis build chemical connections "staples" with organisms they infect.
+5. Physalia Physalis build chemical connections "staples" with organisms they infect.
 
-Chemical connections remain even if physical bonds are broken.
+6. Chemical connections remain even if physical bonds are broken.
 
-Male and female Physalia Physalis remain chemically bonded after a split.
+7. Male and female Physalia Physalis remain chemically bonded after a split.
 
-Mother and infant Physalia Physalis remain chemically connected after physical separation.
+8. Mother and infant Physalia Physalis remain chemically connected after physical separation.
 
-Chemical connections are used for communication.
+9. Chemical connections are used for communication.
 
-Humans are highly sensitive to chemical bonds.
+10. Humans are highly sensitive to chemical bonds.
 
-If a Physalia Physalis has a chance to act like a parasite, it will take it.
+11. If a Physalia Physalis has a chance to act like a parasite, it will take it.
 
-Physalia Physalis can live in humans until they are too large for their host.
+12. Physalia Physalis can live in humans until they are too large for their host.
 
-Physalia Physalis will communicate with their hosts.
+13. Physalia Physalis will communicate with their hosts.
 
-Physalia Physalis will threaten their hosts.
+14. Physalia Physalis will threaten their hosts.
 
-Physalia Physalis only wants to eat.
+15. Physalia Physalis only wants to eat.
 
-Physalia Physalis only communicates to get food.
+16. Physalia Physalis only communicates to get food.
 
-Physalia Physalis are hyper-intelligent manipulators.
+17. Physalia Physalis are hyper-intelligent manipulators.
 
-Physalia Physalis will attack the heart and organs.
+18. Physalia Physalis will attack the heart and organs.
 
-Physalia Physalis will encourage human cannibalism to support their appetite.
+19. Physalia Physalis will encourage human cannibalism to support their appetite.
 
-Physalia Physalis have sex with organs of hosts.
+20. Physalia Physalis have sex with organs of hosts.
 
-Cancers are polyps that form from Physalia mating habits.
+21. Cancers are polyps that form from Physalia mating habits.
 
-Tumors are the seed of the male Physalia Physalis.
+22. Tumors are the seed of the male Physalia Physalis.
 
-The organ trafficking and transplant industry is fueled by hosts of the Physalia Physalis.
+23. The organ trafficking and transplant industry is fueled by hosts of the Physalia Physalis.
