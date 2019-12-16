@@ -52,3 +52,5 @@ Verified Characteristics:
 22. Tumors are the seed of the male Physalia Physalis.
 
 23. The organ trafficking and transplant industry is fueled by hosts of the Physalia Physalis.
+
+24. Male Physalia Physalis rip the shells of their female counterparts to inhibit hovement, they treat humans worse than their own kind.
