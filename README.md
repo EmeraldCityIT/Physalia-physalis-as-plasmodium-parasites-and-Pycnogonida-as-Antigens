@@ -9,6 +9,8 @@ Theories of male and female separation include:
 
     During Mating Males fertilize the female as well as any larvae she already carries.
 
+Males rip the shell off of females in utero to inhibid movement and to enforce dominance. The result of a female Physalia Physalis's shell being removed at the larvae stage is the portuguese man o war "Jellyfish" creature. The female's blatter expands without a protective covering and the creature is forced to the top of the ocean. The female physalia without shell removed resembles a common Pycnogonid Sea Spider.
+
 An extinction-level event arrises in the fact that as larvae Nematocysts, the Physalia Physalis is grown as a weapon used to inject itself into a target prey. Fully Grown Physalia Physalis resemble large, tailed sea spiders and are known to seek out and parasitically infect mammals on land including humans. Through the evolution of weaponized infancy, the fully grown male Physalia Physalis is able to navigate, track and gain entry into a human host as part of it's a natural cycle. Openings such as mouth, throat, anal cavity and Vagina are used to gain entry into a targeted host.
 
 Verified Characteristics:
