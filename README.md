@@ -54,3 +54,27 @@ Verified Characteristics:
 23. The organ trafficking and transplant industry is fueled by hosts of the Physalia Physalis.
 
 24. Male Physalia Physalis rip the shells and eyes from their female counterparts to inhibit hovement and enforce control, they treat humans worse than their own kind.
+
+25. Zinc components are toxicly radioactive to Physalia Physalis Pycnogonids.
+
+26. Silver components are toxicly radioactive to Physalia Physalis Pycnogonids.
+
+27. Aluminum components are toxicly radioactive to Physalia Physalis Pycnogonids. Aluminum is less toxic than Silver.
+
+28. Bronze is less toxic to Physalia Physalis Pycnogonids than Aluminum but still lethal to touch.
+
+29. Alkyd Paint destroys pycnogonid chemical sensors and quantum bonds by destroying chemical bonds
+
+30. Pycnogonids will stay away from machinery with a lot of aluminum and plastic coverings
+
+31. Exposed copper is a primary target of Pycnogonids
+
+32. Exposed pipes are a primary target of Pycnogonids
+
+33. Plastic coverings are a deterant of Pycnogonids
+
+34. Pycnogonids can read
+
+35. The word aluminum is a derent to Pycnogonids
+
+The Pycnogonids fly egg-shaped craft containing human hosts hundreds of thousands of kidnapped humans contained in stasis undiced by blood harvesting. The color of the craft has been identified as "tooth yellow" and has a clear dome on the upper aft portion. The crafts hover above the ocean at underwater stations, and a red tail attaches to some type of deep-sea cable which has been identified as leading to Antarctica.
