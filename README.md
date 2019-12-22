@@ -77,4 +77,6 @@ Verified Characteristics:
 
 35. The word aluminum is a derent to Pycnogonids
 
+36. A chemical substance within the Physalia-Physalis act as a hyper-anode to the electromagnetic field of an Aluminum cathode. Aluminum acts as a radioactive cathode to this substance, ejecting Al molecules into the body of the Pycnogonid at toxic rates.
+
 The Pycnogonids fly egg-shaped craft containing human hosts hundreds of thousands of kidnapped humans contained in stasis induced by blood harvesting. The color of the craft has been identified as "tooth yellow" and has a clear dome on the upper aft portion. The crafts hover above the ocean at underwater stations, and a red tail attaches to some type of deep-sea cable which has been identified as leading to Antarctica.
