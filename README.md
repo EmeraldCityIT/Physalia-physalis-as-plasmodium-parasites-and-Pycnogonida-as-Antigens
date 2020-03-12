@@ -21,3 +21,10 @@
 * SMALL POX (AIDS FINAL STAGE)
 * MALARIA (PLASMODIUM PARASITE)
 
+### Smallpox
+
+![Physalia Physalis Smallpox Bursting](https://d1vqblqxu9wcq3.cloudfront.net/images/87382761_177893810176499_2298549184082477056_o.jpg)
+
+### EEE Virus
+
+
