@@ -29,6 +29,16 @@ Viruses that cause demyelination deteriorate the protective layers of the nervou
 
 ![Physalia Physalis demyelination](https://d1vqblqxu9wcq3.cloudfront.net/images/symptoms-of-aquired-parasites.png)
 
+# What are "Aquired Diseases"?
+
+Some parasites have the ability to eat through the protective layering (myelin) of a host's nervous system. These parasites eat away the protective layer of neurons and use their ovigers to interact with the nervous system of their host. An acquired disease is a parasite that has permeated a host's myelin and gained semi-control of the decision-making abilities of the host after infection. Community acquired diseases are wide-spread myelin penetrating parasites that effect decision making of entire communities.
+
+Aquired diseases are often weaponized and used as a form of propaganda or brain washing by a controller. Community aquirered diseases are a form of control that is capable of overthrowing entire nations, planets, and solar systems. This is a confirmed tactic of the Military of the People's Republic of China, Pleiadians, and OOCL.
+
+# Fight Demyelination
+
+Creatine is a clean, effective, and immediate weapon against antigen viruses. Consuming Creatine allows the body to immediately recover damaged tissue and is used by body builders for muscles and ligaments. Collagen and Calcium rebuild damage caused by demyelination and create stronger neural myelin tissues within the nervous system. Zinc, horsradish, and tumeric are is the most affordable supplements to remove antigens which cause demyelination.
+
 # Natural Female Biology (plasmodium parasites)
 
 Inspect the video thumbnail below before you press play. Within the clear tentacles of the physalia physalis are highly visible nematocysts (pycnogonida).
@@ -106,10 +116,3 @@ Humans are harvested and taken apart like machinery at a scrap yard, women are c
 ![Physalia Physalis demyelination](https://d1vqblqxu9wcq3.cloudfront.net/images/Screen_Shot_2019-12-15_at_111052_PM.png)
 
 Pycnogonids see vision and color based on elemental hues and identify metals, alloys, and composites in all material on sight. Pycnogonids are able to detect metal concentrations in organic flesh. Physalia Physalis Pycnogonid views everything containing metal elements (ex: Calcium, Iron in blood, etc.) as machinery, this is their viewpoint, this is their understanding. The exoskeleton is a "metal covering" in the life of a Pycnogonid which views itself as a cyborg, or "fusion" between living beings and metal. The creature's main objective upon discovering any new living body is to rip it apart and scavenge its parts. The species' intention is to feed on modified biological entities created from parts of multiple hosts. Physalia Physalis Pycnogonids collect and harvest hosts like a collection of machines. Male Physalia Physalis Pycnogonids use their venomous enzymes to numb their host's insides and disguise their movement within the victim's body. De-shelled females use the toxin to disable their prey in water. Physalia Physalis main predatorial tactic is to force their host to submit to their will like a robot which they call cyborg or "borg".
-
-
-
-
-
-
-
