@@ -101,6 +101,12 @@ The entire operational culture of the Physalia Physalis consists of death via pa
 
 Humans are harvested and taken apart like machinery at a scrap yard, women are cut open at the midsection to expose their womb for forced mechanical breeding while calcium (milk), and iron (blood) are harvested from the mother host. Other grotesque borg manifestations were seen in Seattle, during Operation American Watchdog 2016 when Seattle Police officer Margaret Johnson built a "kidney tree" in hanger A7 using kidneys harvested from multiple victims at the port and Laboratory scaffolding. Margaret stated before launching a bright strike attack "the kidney tree was a very temporary habitat to keep her borg happy."
 
+# Xenopsychology
+
+![Physalia Physalis demyelination](https://d1vqblqxu9wcq3.cloudfront.net/images/Screen_Shot_2019-12-15_at_111052_PM.png)
+
+Pycnogonids see vision and color based on elemental hues and identify metals, alloys, and composites in all material on sight. Pycnogonids are able to detect metal concentrations in organic flesh. Physalia Physalis Pycnogonid views everything containing metal elements (ex: Calcium, Iron in blood, etc.) as machinery, this is their viewpoint, this is their understanding. The exoskeleton is a "metal covering" in the life of a Pycnogonid which views itself as a cyborg, or "fusion" between living beings and metal. The creature's main objective upon discovering any new living body is to rip it apart and scavenge its parts. The species' intention is to feed on modified biological entities created from parts of multiple hosts. Physalia Physalis Pycnogonids collect and harvest hosts like a collection of machines. Male Physalia Physalis Pycnogonids use their venomous enzymes to numb their host's insides and disguise their movement within the victim's body. De-shelled females use the toxin to disable their prey in water. Physalia Physalis main predatorial tactic is to force their host to submit to their will like a robot which they call cyborg or "borg".
+
 
 
 
