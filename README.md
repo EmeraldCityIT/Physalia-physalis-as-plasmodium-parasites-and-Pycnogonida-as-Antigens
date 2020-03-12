@@ -1,7 +1,7 @@
 # Extinction-Level-Event-by-Physalia-Physalis
 ![Physalia Physalis Invasion Alert](https://d1vqblqxu9wcq3.cloudfront.net/images/invasion-gundam-news.png)
 
-The female Physalia Physalis plasmodial parasite (Portuguese man o war) carries reproductive organs in her tentacles called cnidocytes. Female cnidocytes are used to mate with the gonopores of the male physalia physalis phage/virus/antigen (Pycnogonida).
+<p>The female Physalia Physalis plasmodial parasite (Portuguese man o war) carries reproductive organs in her tentacles called cnidocytes. Female cnidocytes are used to mate with the gonopores of the male physalia physalis phage/virus/antigen (Pycnogonida). Antigens are born as the nematocysts of the physalia physalis which grow 2 or 3 feet in diameter. A major conspiracy and coverup behind AIDS is that many patients die when they are killed by hospitals to prevent infection, as pycnogonida literally leap out of the victim's bodily openings.</p>
 
 ![Physalia Physalis Nematocysts](https://d1vqblqxu9wcq3.cloudfront.net/images/F4large.jpg)
 <p>(A) Cnidocyte 3D scan (B) Cbidocyte CAT scan (C) Nematocysts CAT scan (D-E) Nematocyst 3D scan (F-J) Nematocyst MRE scan length (K) Nematocyst MRE scan side (L) Nematocyst breakdown.</p>
