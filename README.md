@@ -1,4 +1,6 @@
 # Extinction-Level-Event-by-Physalia-Physalis
+![Physalia Physalis Invasion Alert](https://d1vqblqxu9wcq3.cloudfront.net/images/invasion-gundam-news.png)
+
 The female Physalia Physalis (Portuguese man o war) carries reproductive organs in her tentacles which are used to mate with the elusive male counterpart. The male Physalia Physalis resembles a pycnogonid species and also carries reproductive organs in his appendages or legs. Upon fertilisation by mating, Male and female counterparts are formed together as Nematocysts within Cnidocytes in the female's tentacles. During larval stages, while still within the mother's Nematocysts, the larvae is weaponized and used to attack and parasitically infect prey. When the Nematocysts outgrow the Cnidocytes of the mother, they are released into the ocean to begin a new lifecycle.
 
 Males rip the shell and eyes off of females to inhibid movement, fully expose her gonopores and to enforce dominance. The result of a female Physalia Physalis's shell being removed is the portuguese man o war "Jellyfish" creature. The female's blatter expands without a protective covering and the creature is forced to the top of the ocean. The female physalia without shell removed resembles a common Pycnogonid Sea Spider.
