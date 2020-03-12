@@ -71,6 +71,31 @@ High concentrations of tritium found within the physalia physalis create biologi
 
 Nuclear reactors currently in operation are various designs for farming pycnogonida and harvesting Tritium. Tritium is collected in pools which are connected to copper cables which run to power companies. Pools are often makeshift or commercially available materials filled with Tritium, with a copper cable that simply runs the length of tunnel to nearby power station.
 
+![Physalia Physalis demyelination](https://d1vqblqxu9wcq3.cloudfront.net/images/vermont_yankee_pool_courtesy_14081-1_b_0.jpg)
+
+![Physalia Physalis demyelination](https://d1vqblqxu9wcq3.cloudfront.net/images/VYwater6-610x391.jpg)
+
+![Physalia Physalis demyelination](https://d1vqblqxu9wcq3.cloudfront.net/images/VYwater18-610x396.jpg)
+
+"As the solution loses power, we siphon off the bottom layers, and add new layer to the top.We see that the newer layer always floats to the top, so we know that it works. -Stenson Jefry"
+
+* Q. Why is the cable at the bottom if all the power is at the top. Aren't you just losing electrons to the rest of the environment?
+
+* A. I'll have one of our physicists look at it.
+
+# Mulching and Meltdowns
+
+Large Breed Reactors consist of large pycnogida housed in anethstetic towers. When conditions are met that create mulching of the pycnogonida's shell, a meltdown occurs and the physalia physalis often comes apart from it's containment vessel as a large plasmodium parasite.
+
+# Weaponization
+
+![Physalia Physalis demyelination](https://d1vqblqxu9wcq3.cloudfront.net/images/physalia-physalis-virus/Screen_Shot_2020-01-28_at_54415_PM.png)
+
+Physalia physalis nematocysts are known as phage viruses and have been studied since the 1974 when a piece of building material from Boston harbor was sent to scientist Ronald Bauerman and was found with strange spiders in it's containment bag. Physalia Physalis has a long lifespan and grows extremely large. Physalia physalis has been studied by many laboratories for it's ability to parasitically infect a population and take instruction.
+
+# Demonic Possession and Human Harvesting (Equine Encephalitis)
+
+Humans are harvested and taken apart like machinery at a scrap yard, women are cut open at the midsection to expose their womb for forced mechanical breeding while calcium (milk), and iron (blood) are harvested from the mother host. Other grotesque borg manifestations were seen in Seattle, during Operation American Watchdog 2016 when Seattle Police officer Margaret Johnson built a "kidney tree" in hanger A7 using kidneys harvested from multiple victims at the port and Laboratory scaffolding. Margaret stated before launching a bright strike attack "the kidney tree was a very temporary habitat to keep her borg happy."
 
 
 
