@@ -4,6 +4,7 @@
 The female Physalia Physalis plasmodial parasite (Portuguese man o war) carries reproductive organs in her tentacles called cnidocytes. Female cnidocytes are used to mate with the gonopores of the male physalia physalis phage/virus/antigen (Pycnogonida).
 
 ![Physalia Physalis Nematocysts](https://d1vqblqxu9wcq3.cloudfront.net/images/F4large.jpg)
+<p>(A) Cnidocyte 3D scan (B) Cbidocyte CAT scan (C) Nematocysts CAT scan (D-E) Nematocyst 3D scan (F-J) Nematocyst MRE scan length (K) Nematocyst MRE scan side (L) Nematocyst breakdown.</p>
 
 Upon fertilization by mating, Male and female counterparts are formed together as Nematocysts within Cnidocytes in the female's tentacles. During larval stages, while still within the mother's Nematocysts, the larvae is weaponized and used to attack and parasitically infect prey. When the Nematocysts outgrow the Cnidocytes of the mother, they are released into the ocean to begin a new lifecycle.
 
